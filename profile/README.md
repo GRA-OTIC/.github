@@ -65,7 +65,7 @@ Trabajamos para que la tecnología sea un medio efectivo de:
 ¿Consultas sobre nuestros sistemas o colaboraciones institucionales?
 
 📧 **otic@regionayacucho.gob.pe**  
-🏛️ Gobierno Regional de Ayacucho — Jr. Callao 460, Ayacucho, Perú
+🏛️ Gobierno Regional de Ayacucho — Jr. Callao 122, Ayacucho, Perú
 
 ---
 
